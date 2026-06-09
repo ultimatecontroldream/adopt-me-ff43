@@ -1,4 +1,4 @@
-#  
+#  premium Scripts for adopt me is the best adopt me Script, featuring infinite resources and no clip. Safe and powerful for all your needs.
 
 
 
